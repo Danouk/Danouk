@@ -1,5 +1,5 @@
 - 👋 Hola!  soy Debra Anouk Grimbeek @Danouk 🇦🇷
-- 🚀 Desarrolladora Web desde hace 1 año
+- 🚀 Desarrolladora Web
 - 💗 AMO JS, 🌱 🙌  Curiosa y ansiosa por seguir aprendiendo.
 
 - 📫 debra.grimbeek@gmail.com
